@@ -1,1 +1,1 @@
-Integrantes Szapiro Dylan Y Marin Bautista
+Integrantes: Szapiro Dylan Y Marin Bautista
